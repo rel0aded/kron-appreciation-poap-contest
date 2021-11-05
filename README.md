@@ -30,11 +30,11 @@ junovhs#1706
 
 McLovin#1981
 
-![McLovin#1981](McLonvin.png)
+![McLovin#1981](McLovin.png)
 
 RPLgrime#6980
 
-![RPLgrime#6980](RPLgrime.gif)
+![RPLgrime#6980](RPLgrime.png)
 
 hanniabu#7138
 
