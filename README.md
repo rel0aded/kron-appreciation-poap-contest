@@ -22,7 +22,7 @@ Kevster#4428
 
 Antoine#2503
 
-![Antoine#2503](https://cdn.discordapp.com/attachments/905769039006142484/906157680081661963/Kronpoapvf.png)
+![Antoine#2503](https://media.discordapp.net/attachments/905769039006142484/906246051973972008/Kronpoapvf.png)
 
 junovhs#1706
 
