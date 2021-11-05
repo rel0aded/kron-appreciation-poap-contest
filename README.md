@@ -54,4 +54,4 @@ astoneta#9895
 
 jasko#5723
 
-![jasko#5723](https://cdn.discordapp.com/attachments/905769039006142484/906189662706618438/KRON-PRES.png)
+![jasko#5723](https://media.discordapp.net/attachments/905769039006142484/906244172137238568/KRON-PRES.png)
